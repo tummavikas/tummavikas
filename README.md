@@ -50,8 +50,3 @@
 
 <br/>
 
-<div align="center">
-<a href='https://ko-fi.com/V7V4RAK9C' target='_blank'><img height='64' style='border:0px;height:64px;' src='https://www.instagram.com/vikas_tumma05?igsh=NHdxYWtsNzl3ZHoz' border='0' alt='Want to chat' /></a>
-</div>
-
-<br/>
